@@ -3,7 +3,7 @@ Este proyecto se base en llevar a todo lo alto a esta increible web de contenido
 
 Aqui tenemos un breve extracto de un articulo de la web
 
-Los <a href="https://www.mundotatuajes.info">Tatuajes maories</a> se caracterizan por ser diseños muy complejos que se tatúan en el cuerpo para dar diferentes significados como el estatus de la persona, para representar a la familia, el rango que se tiene dentro de la tribu cuál es su actividad.
+Los <a href="https://www.mundotatuajes.info/tipos/maories">Tatuajes maories</a> se caracterizan por ser diseños muy complejos que se tatúan en el cuerpo para dar diferentes significados como el estatus de la persona, para representar a la familia, el rango que se tiene dentro de la tribu cuál es su actividad.
 Los símbolos más importantes de la cultura polinesia que han trascendido a los diseños de los tatuajes maories son los siguientes: La tortuga, el símbolo más importante que representa la eternidad, el bienestar, la fertilidad, la unión, la familia y la armonía y que también simboliza el mar y los navegantes.
 Si bien es cierto que los maoríes han repudiado el hecho de que personas ajenas a su cultura comiencen a usar los diseños que utiliza su pueblo para hacer gala de su espíritu y estatus social, también es cierto que cada día son muchas las personas que se suman a esta tendencia de piel y se hacen tatuajes maoríes.
 
